@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 @00001124921813sp@al.educacao.sp.gov.br
 
 @alurastartestudante
-![](link)
+![](https://www.icegif.com/wp-content/uploads/2022/12/icegif-27.gif)
